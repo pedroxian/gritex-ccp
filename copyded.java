@@ -1,0 +1,1 @@
+direct.apex is.else cos.2 change;ip.port -factelement.ab nx.a;both rage.64x.port com.psariff.over sequence.bride/orbeslife.eumade.over chill.pand;transient ,truehade.if.else -noto.notu brade.iss cut.playif.youtube.com/https://www.twitch.tv/ropertablash.tool/ptz.goto.googledrivesend.ip /flute.sad.5 /6.24.transient

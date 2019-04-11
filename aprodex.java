@@ -1,0 +1,1 @@
+rage%er.ax gr.tov %ddr cov.tan e.sin%cosmage.12 37%73*14 pock.eve ;rax.rex /.id.pssage.wore ;faulty /city.code %5.0aprox.mate x.face/system.drive _5%67283241√4/7 odd.vstpad.fact cos(2) /zad .riddle ;stop
